@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Spigot,Forge,Python,Kingdom Hearts**
 
-- 📫 How to reach me **matteo.rauch23@phylisium-studio.fr**
+- 📫 How to reach me **matteo.rauch@phylisium-studio.fr**
 
 - ⚡ Fun fact **I wait for zelda TOKT**
 
