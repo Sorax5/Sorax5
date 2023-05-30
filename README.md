@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **matteo.rauch@phylisium-studio.fr**
 
-- ⚡ Fun fact **I wait for zelda TOKT**
+- ⚡ Fun fact **No need to wait for Tokt, I'm already playing.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
